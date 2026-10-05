@@ -1,4 +1,4 @@
-## ### Hi there, I'm Junaid Khan 👋
+ ### Hi there, I'm Junaid Khan 👋
 
 Aspiring Software Engineer from Pakistan | BSSE Student
 
